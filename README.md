@@ -1,5 +1,5 @@
 # 100DaysOfStuffJourney
-![Kubernetes](https://upload.wikimedia.org/wikipedia/commons/thumb/6/67/Kubernetes_logo.svg/798px-Kubernetes_logo.svg.png)
+![Study](https://p.favim.com/orig/2019/04/09/studying-studyingmemes-memes-Favim.com-7061156.jpg)
 
 
 ## [✍️ Your Name]'s Journey
