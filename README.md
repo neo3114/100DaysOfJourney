@@ -1,5 +1,5 @@
 # 100DaysOfStuffJourney
-![Study](https://p.favim.com/orig/2019/04/09/studying-studyingmemes-memes-Favim.com-7061156.jpg)
+![Study](https://p.favim.com/orig/2019/04/09/studying-studyingmemes-memes-favim.com-7061156.jpg)
 
 
 ## [✍️ Your Name]'s Journey
