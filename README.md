@@ -5,8 +5,8 @@
 ## [✍️ Your Name]'s Journey
 
 ### Your Social
-- [✍️ Link to your Twitter](https://twitter.com/username)
-- [✍️ Link to your LinkedIn](https://www.linkedin.com/in/username)
+- [✍️ Link to your Twitter](https://twitter.com/vm_nathbyrne)
+- [✍️ Link to your LinkedIn](https://www.linkedin.com/in/nathan-byrne-227a306/)
 
 ## Stepping out the door
 
