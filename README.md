@@ -2,11 +2,11 @@
 ![Study](https://github.com/neo3114/100DaysOfJourney/blob/d206e77a72bd3405b09d7e9627d44daa89cbb755/studying.jpg.jpg)
 
 
-## [✍️ Your Name]'s Journey
+## Nathans's Journey
 
 ### Your Social
-- [✍️ Link to your Twitter](https://twitter.com/vm_nathbyrne)
-- [✍️ Link to your LinkedIn](https://www.linkedin.com/in/nathan-byrne-227a306/)
+- (https://twitter.com/vm_nathbyrne)
+- (https://www.linkedin.com/in/nathan-byrne-227a306/)
 
 ## Stepping out the door
 
